@@ -10,7 +10,7 @@ https://www.youtube.com/playlist?list=PL57Dnr1H_egsL0r4RXPA4PY2yZhOJk5Nr
 
 
 
-[![As Simple As Possible Robotics but not simpler](http://img.youtube.com/vi/ReaxoSIM5XQ/0.jpg)](https://www.youtube.com/playlist?list=PL57Dnr1H_egsL0r4RXPA4PY2yZhOJk5Nr)
+[![As Simple As Possible Robotics but not simpler](http://img.youtube.com/vi/zRZJHMFL0p4/0.jpg)](https://www.youtube.com/playlist?list=PL57Dnr1H_egsL0r4RXPA4PY2yZhOJk5Nr)
 
 
 
